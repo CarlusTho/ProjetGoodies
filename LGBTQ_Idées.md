@@ -72,3 +72,17 @@
   - Pins:
 
     - Affirmez votre individualité avec nos pins personnalisés! Sacs, trousses, vêtements, ... Ils s'accrochent sans discrimination et se marient parfaitement avec nos autres gammes de produits
+
+  - Mugs:
+
+    - Exprimez-vous avec nos Mugs inclusifs LGBTQI+
+      - Leur grande capacité ainsi que leur propriété isotherme conserve la chaleur de vos liquides jusqu'à 2 heures d'affilées! Prenez le temps d'expliquer aux hétéronormés l'entièreté de votre originalité
+
+    - Coques de smartphone:
+      - Découvrez nos nouvelles protections pour smartphone! Ultra slim et résistante
+      aux chocs, rayures, et complètement waterproof, elle laisse l'accès à l'interface
+      utilisateur, l'objectif de la caméra, prise casque, haut-parleur et microphone
+      ainsi qu'à la prise de chargement. Dans le style que vous voulez pour le smartphone
+      que vous voulez!
+
+    - 
