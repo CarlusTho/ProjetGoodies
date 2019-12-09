@@ -52,7 +52,17 @@
 
 - Conventions et rassemblements
 
-- Bio sur personnalité LGBT (interview?)
+- Bio sur personnalité LGBT:
+
+  - Macklemore: artiste talentueux et engagé
+
+    - Macklemore à fait l'effet d'une petite bombe ces dernières années dans le monde
+    du Hip-hop américain. En collaboration avec Ryan Lewis depuis 2009, il se distingue
+    particulièrement par ses chansons engagées. Des prises de position risquées qui
+    brisent l'indifférence envers la communauté LGBTQI+ dans le monde du Hip-hop.
+
+
+
 
 ## Textes:
 
@@ -76,7 +86,7 @@
   - Mugs:
 
     - Exprimez-vous avec nos Mugs inclusifs LGBTQI+
-      - Leur grande capacité ainsi que leur propriété isotherme conserve la chaleur de vos liquides jusqu'à 2 heures d'affilées! Prenez le temps d'expliquer aux hétéronormés l'entièreté de votre originalité
+    Leur grande capacité ainsi que leur propriété isotherme conserve la chaleur de vos liquides jusqu'à 2 heures d'affilées! Prenez le temps d'expliquer aux hétéronormés l'entièreté de votre originalité
 
     - Coques de smartphone:
       - Découvrez nos nouvelles protections pour smartphone! Ultra slim et résistante
@@ -84,5 +94,3 @@
       utilisateur, l'objectif de la caméra, prise casque, haut-parleur et microphone
       ainsi qu'à la prise de chargement. Dans le style que vous voulez pour le smartphone
       que vous voulez!
-
-    - 
