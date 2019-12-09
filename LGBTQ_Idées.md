@@ -59,7 +59,24 @@
     - Macklemore à fait l'effet d'une petite bombe ces dernières années dans le monde
     du Hip-hop américain. En collaboration avec Ryan Lewis depuis 2009, il se distingue
     particulièrement par ses chansons engagées. Des prises de position risquées qui
-    brisent l'indifférence envers la communauté LGBTQI+ dans le monde du Hip-hop.
+    brisent une indifférence de longue date envers la communauté LGBTQI+ dans le monde du Hip-hop.
+
+    Avec sa chanson: "Same Love", le rappeur américain brise non seulement les tabous; à savoir, parler de
+    l'homosexualité dans un milieu transpirant tantôt l'indifférence, tantôt l'homophobie; mais il
+    s'attaque aussi aux stéréotypes ancrés très profondement dans la culture générale. Ces
+    préjugés violents et la désorientation qu'ils procurent chez une jeunesse qui se cherche
+    sont les thématiques principales de cette ballade.
+
+    Cette chanson écrite après le suicide d'un garçon homosexuel de 13 ans, s'adresse
+    à toutes les personnes opprimées par la société connotant chaque activité et idée,
+    par une orientation sexuelle, par une boîte...
+
+    Il faut changer l'opinion générale et notre façon de voir les choses, c'est ce qu'à
+    compris et ressenti Macklemore alors que lui-même est hétérosexuel. Briser ces boîtes
+    martelées en nous dès l'enfance, et avancer, avancer malgré la haine irrationnelle des homophobes, avancer malgré les moqueries et les tabous, avancer quels que soit notre orientation personelle; afin d'atteindre
+    un monde qui accepte enfin de laisser les gens faire ce qu'il veulent, sans coller
+    des étiquettes à tout va, un monde d'acceptation et de tolérance, où aucun enfant ne
+    se sentira seul au monde sans qu'on lui tende la main...
 
 
 
