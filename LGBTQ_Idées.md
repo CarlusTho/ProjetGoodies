@@ -79,8 +79,6 @@
     se sentira seul au monde sans qu'on lui tende la main...
 
 
-
-
 ## Textes:
 
 - Page d'accueil:
